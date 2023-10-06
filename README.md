@@ -1,6 +1,6 @@
 ##  介紹影片
 
-https://studio.youtube.com/video/_-THqNxvSoY/edit
+https://www.youtube.com/watch?v=_-THqNxvSoY&ab_channel=%E5%BC%B5%E5%93%B2%E4%BF%AE
 
 ##  Google登入相關事項
 
